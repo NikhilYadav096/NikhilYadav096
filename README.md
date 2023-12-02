@@ -2,7 +2,7 @@
 - 👀 I’m interested in to learn about the new technology 
 - 🌱 I’m currently learning about the Web development,Pyton  
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... through email-ny717699@gmail.com
+- 📫 How to reach me ... through email- ny717699@gmail.com
 - 📫 Phone no-9541340770
 
 <!---
